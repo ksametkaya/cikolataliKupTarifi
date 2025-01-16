@@ -1,1 +1,1 @@
-# HTML kullanarak düzenlemeye calistim :)
+# HTML kullanarak düzenlemeye calistim -_-
